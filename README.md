@@ -1,1 +1,1 @@
-# may-n-tarlas-full-ver.
+# mayin-tarlasi-full-ver.
